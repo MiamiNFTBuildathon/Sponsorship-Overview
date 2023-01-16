@@ -2,8 +2,6 @@
 
 # Miami NFT Buildathon Sponsorship |                                  March 31 - April 2, 2023
 
-![BANNER (4).png](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/9623f96b-93c6-4d78-8c42-cb1bcf30cfb8/BANNER_(4).png)
-
 # ⭐️ The World’s Premiere IRL NFT Hackathon.
 
 ## 🔨 By the Builders, for the Builders.
@@ -11,8 +9,6 @@
 ## In need of access to top-tier Web3 talent? Want more eyes on your protocol / ecosystem / project? Sponsor a “Node” at Miami NFT Buildathon and innovate alongside the top engineers, designers, & operators in Web3.
 
 City of Miami Mayor Francis Suarez has dubbed April as Miami Tech Month and Miami NFT Week / Miami NFT Buildathon as **the official launch events** of such. In 2022, Miami NFT Week had **5,000+ attendees and 250+ speakers** from some of the most prominent names in business & crypto. Past featured speakers include **Mayor Francis Suarez, Mark Cuban, Avery Akkineni, French Montana, Grant Cardone, Swan Sit,** and many more.
-
-![FPV7D2uWUAwtRIb (1).jpeg](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/f2a8f5d9-92d3-4c1b-9eb5-c222fe22c118/FPV7D2uWUAwtRIb_(1).jpeg)
 
 ## Check Out the Conference Recap from 2022!
 
@@ -24,8 +20,6 @@ City of Miami Mayor Francis Suarez has dubbed April as Miami Tech Month and Miam
 </aside>
 
 ---
-
-![Group 48096435.jpg](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/90edde22-62e4-4442-b0a4-0b1b4c0b36dd/Group_48096435.jpg)
 
 # ☀️ About
 
@@ -57,17 +51,12 @@ The BUILDathon’s HQ will be in the heart of Downtown Miami at **Miami Dade Col
 - State-of-the-Art facilities such as the BIT (Business Innovation & Technology) Center
 - Home of the famous Crypto Bull
 
-![Group 48096441.png](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/5a92424d-b4c2-4854-ba75-ad5d59f491de/Group_48096441.png)
-
 **We’ll be taking over campus all weekend long** & activating different locations in & around Miami for participants & sponsors to experience & explore.
 
 # 📆 Schedule of Events
-
-![Group 48096445 (2).png](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/1cb1ac38-c1d8-4dde-98df-919032072c30/Group_48096445_(2).png)
+![image](https://user-images.githubusercontent.com/122817239/212737031-63c50bb6-7a72-4b47-9222-5255ea769334.png)
 
 ---
-
-![BANNER.png](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/4a92e689-30bd-4638-abf5-5b0127cad34c/BANNER.png)
 
 ## Here’s how you join in on the fun:
 
